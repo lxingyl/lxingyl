@@ -6,7 +6,6 @@
 Here are some ideas to get you started:
 
 - 🌱 I’m currently learning 51,sw
-- 📫 How to reach me:1780571364@qq.com
 - 😄 Pronouns: him
 - ⚡ Fun fact: boring person
 
